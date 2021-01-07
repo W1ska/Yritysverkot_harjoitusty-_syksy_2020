@@ -1,1 +1,1 @@
-# Yritysverkot_harjoitusty-_syksy_2020
+# Yritysverkot_harjoitustyö-_syksy_2020
